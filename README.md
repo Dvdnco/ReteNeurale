@@ -1,1 +1,1 @@
-Rete Neurale Cpoalvoro 2025
+Rete Neurale Capolavoro 2025
